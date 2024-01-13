@@ -2,7 +2,7 @@
 - 👀 I’m interested in cooking, books, writing, cats, good stories, and the outdoors
 - 🌱 I’m currently learning The Odin Project
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me if not on here, then at kitcat2012@gmail.com
+- 📫 How to reach me if not on here, then at my discord.
 - 😄 Pronouns: He/They
 - ⚡ Fun fact: The road between do or fail is try.
 
